@@ -4,6 +4,9 @@ Graduate Admissions is tricky waters. As the admission season comes up, I have b
 
 Please note, you might find a lot of repetition across the SOPs. But should give you some idea on how I went about changing the SOPs for different Universities and with different application cycles (2020 and 2021). You can also observe the transition between MS SOPs and PhD SOPs. Other material which might help in your admission process.
 
+
+https://www.reddit.com/r/gradadmissions/comments/octr26/the_az_for_graduate_admissions_msphd/
+
 https://www.youtube.com/watch?v=jWzV8g9ywb8&list=PLo1VxtC-C3yXgwe4PDyP_De6X_ka2KE0q&index=1
 
 https://www.youtube.com/watch?v=wyF2-7jQ7UA
